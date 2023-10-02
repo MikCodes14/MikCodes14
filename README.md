@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MikCodes14
+- 👀 I’m interested in coding, at least I HOPE I AM
+- 🌱 I’m currently a comp sci student
